@@ -1,6 +1,7 @@
-## Bem vindo inglês no isolamento
+## Bem vindo ao inglês no isolamento
 
-Vou te ensinar bastante coisinhas legais :D Clique no botão abaixo para acessar a aula:
+Vou te ensinar bastante coisinhas legais :D
+Clique no botão abaixo para acessar a aula:
 
 
             
